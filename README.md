@@ -15,3 +15,5 @@ Social media is highly prone to disinformation and misinformation. A study condu
 ## FOMO
 
 ![You are more than enough](https://user-images.githubusercontent.com/71460438/146307774-156204f5-2052-42e7-9e35-400d4cc014bb.png)
+
+Social media adddiictionntends to take a toll on the mental health of young people. Being bombarded by 
